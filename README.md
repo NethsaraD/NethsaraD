@@ -4,7 +4,7 @@ I'm an IT student at the Sri Lanka Institute of Information Technology, born in 
 
 ## 🌟 What I'm About
 
-I am constantly learning and expanding my knowledge of the ever-evolving IT landscape. Whether it's mastering programming languages, tinkering with hardware, or delving into cybersecurity, I'm up for the challenge. I am constantly
+I am constantly learning and expanding my knowledge of the ever-evolving IT landscape. Whether it's mastering programming languages, tinkering with hardware, or delving into cybersecurity, I'm up for the challenge.
 
 ## 🚀 My Mission
 
