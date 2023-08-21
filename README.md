@@ -1,6 +1,6 @@
 # Hey, I'm Nethsara! 👋
 
-I'm an IT student at SLIIT University, Sri Lanka, born in 2003. I have a strong passion for technology and all things related to it. From coding to exploring the latest tech trends, I'm always excited to dive into the world of bits and bytes.
+I'm an IT student at the Sri Lanka Institute of Information Technology, born in 2003. I have a strong passion for technology and all things related to it. From coding to exploring the latest tech trends, I'm always excited to dive into the world of bits and bytes.
 
 ## 🌟 What I'm About
 
