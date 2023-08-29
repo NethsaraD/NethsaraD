@@ -8,7 +8,7 @@ I am constantly learning and expanding my knowledge of the ever-evolving IT land
 
 ## 🚀 My Mission
 
-I'm on a mission to turn complex problems into elegant solutions through the power of code. My projects reflect my dedication to innovation and my drive to make a positive impact.
+I'm on a mission to turn complex problems into elegant solutions through the power of code. My projects reflect my dedication to innovation and drive to impact positively.
 
 ## 🌐 Let's Connect
 
